@@ -1,5 +1,5 @@
-- I go by Vakore online.
-- Sole developer behind Derisory.
+- Sole developer behind Derisory
+- Soon to be Master's Degree holder
 - Youtube channel: https://www.youtube.com/channel/UCqSwjaGctHSVnY7xR8Mec9g
 - Discord: https://discord.gg/qb3nhGyh
 
